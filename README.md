@@ -14,6 +14,6 @@ _ _
 [![Tumblr-l-296016891492384.png](https://i.postimg.cc/bv5pZSyf/Tumblr-l-296016891492384.png)](https://postimg.cc/cKfVjHtF)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*My Discord loveys*ㅤ[![Tumblr-l-301372751039515.gif](https://i.postimg.cc/g0g1MxrR/Tumblr-l-301372751039515.gif)](https://postimg.cc/06Jtj2Y2)ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-Jassy !!  Shuu !!  Anti !!  Isaac !!  Scarlet !!  Amaya !!  Zane !!  Miochi !! ㅤLuelle !! Xel !! Sunny !! Luke !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+Jassy !!  [![Tumblr-l-301564154173378.webp](https://i.postimg.cc/CKSvpS9N/Tumblr-l-301564154173378.webp)](https://postimg.cc/gxtyvFzX)Shuu !! [![Tumblr-l-301365008461789.gif](https://i.postimg.cc/MZnJFm7m/Tumblr-l-301365008461789.gif)](https://postimg.cc/grb7wRBx) Anti !! [![Tumblr-l-301372751039515.gif](https://i.postimg.cc/g0g1MxrR/Tumblr-l-301372751039515.gif)](https://postimg.cc/06Jtj2Y2) Isaac !!  Scarlet !!  Amaya !!  Zane !!  Miochi !! ㅤLuelle !! Xel !! Sunny !! Luke !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
